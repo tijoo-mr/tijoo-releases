@@ -6,4 +6,4 @@ Le carnet de crédits des commerçants : clients, dettes, remboursements, rappel
 
 Page d'installation : https://tijoo-mr.github.io/tijoo-releases/
 
-Contact : WhatsApp 27 95 55 57 · contact@tijoo.mr
+Contact : WhatsApp 31 20 31 40 · contact@tijoo.mr
